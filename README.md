@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<!--
+<!<img alighn="right" src="https://media.discordapp.net/attachments/1279830753156530269/1523023430516084766/New_Project-4__fliter--dark-crimson-sepia__channel--all__mode--exclusion-3__fliter--gold-sunset__channel--all__mode--color.png?ex=6a4c93da&is=6a4b425a&hm=39ac607f80a8dee5f22cfa6a7e620448715854cc5e62414e962a4ad9f0e368bd&=&format=webp&quality=lossless&width=1100&height=530" width="800" align="centre" hspace="90">--
 **TheoBaldSwordwelder/TheoBaldSwordwelder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
