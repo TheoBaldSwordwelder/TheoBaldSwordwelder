@@ -6,6 +6,6 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://hits.sh/github.com/manepearmacer.svg?label=pears&extraCount=332&color=b35c34&labelColor=dad6ba&logo=4chan" width="100">
 
-‎‎<img src="https://cute.crd.co/assets/images/gallery19/f838ffe3.png?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://cute.crd.co/assets/images/gallery01/5a14c106.gif?v=b2065c0c" width="30" hspace="10" />
+‎‎<img src="https://cute.crd.co/assets/images/gallery19/f838ffe3.png?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}am}$ ${\color{#b35c34} the}$ ${\color{#b35c34}biggest}$ ${\color{#b35c34}bird}$ ${\color{#b35c34}not}$ ${\color{#b35c34}u}$ ${\color{#e0d8d9}stupid }$ ${\color{#e0d8d9}! }$⊱ <img src="https://cute.crd.co/assets/images/gallery01/5a14c106.gif?v=b2065c0c" width="30" hspace="10" />
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}any }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}all }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="24">‎ ‎ ‎ ‎    ‎ 
