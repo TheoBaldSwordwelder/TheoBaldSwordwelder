@@ -1,1 +1,0 @@
-<img alighn="right"https://cdn.discordapp.com/attachments/1407876336524984383/1526944356148314303/HoaovJGiix_8WJfQkNX4.webpex=6a58dd3f&is=6a578bbf&hm=9117e8bab3b607747fa07c89e338e98fe8cb4b0c360deaf8b61de67f162e97b8&
